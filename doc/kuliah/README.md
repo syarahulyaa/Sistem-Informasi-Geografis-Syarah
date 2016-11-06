@@ -1,1 +1,0 @@
-# Sistem-Informasi-Geografis-Syarah
